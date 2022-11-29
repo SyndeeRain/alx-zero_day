@@ -1,1 +1,1 @@
-My first readme
+Graphic Artist/Software Engr.
